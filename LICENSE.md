@@ -1,4 +1,4 @@
-#  
+#  Experience re:rangers x like never before with re:rangers x Script premium, the #1 Script. Includes instant win and aimbot for unbeatable performance.
 
 
 
